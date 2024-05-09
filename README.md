@@ -12,8 +12,6 @@
 
 📫 You can reach me via LinkedIn: [Cyril T Johnson](https://www.linkedin.com/in/cyril-t-johnson/)
 
-😄 Pronouns: He/Him
-
 ⚡ Fun fact: I enjoy exploring the intersection of technology and creativity, whether it's through coding projects or experimenting with AI-generated art.
 
 <!---
